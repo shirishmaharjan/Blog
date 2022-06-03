@@ -1,4 +1,4 @@
-## Welcome to GitHub Pages GIIS Shirish 
+## Sithi: Nakha: and Environmental Connection
 
 Can I write anything here and it will publish on github ? Really ? 
 
